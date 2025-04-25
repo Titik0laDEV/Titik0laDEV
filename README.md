@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @Titik0laDEV
+- 👋 Hi!
 - 👀 I’m a indie spanish programmer.
-- 🌱 I’m currently making a remake of the hated game E.T the extraterrestian.
-- 📫 You can contact me on tiagotabletnavidad@gmail.com
+- 🌱 I’m currently making a lot of things xD
+- 📫 You can contact me on tiagoneira.castro@gmail.com
 
 - I hope you enjoy my gane when I publish it!
